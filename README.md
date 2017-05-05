@@ -1,2 +1,2 @@
 #   STAY HUMBLE.
-Keep your friends in check. Let KDot remind them where their place is.
+Keep your friends in check. Let K-Dot put them in their place for you.
